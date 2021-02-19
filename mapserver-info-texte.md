@@ -57,3 +57,9 @@ existence of a former lake. Perseverance will examine the larger of the
 two in the west in more detail.
 
 ### Jezero Crater (center)
+
+This is a view from the crater center at higher altitude. From here you
+have a perfect overview over Jezero and can spot the delta, the inflow-
+and the outflow channels in the distance. Also very well visible is the
+asymetry of the crater. The rims of Jezero are pretty shallow in the
+northeastern part and much steeper towards the south.
